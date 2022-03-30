@@ -11,6 +11,7 @@ Results
 
 ## Deliverable # 2
 
+![image](https://user-images.githubusercontent.com/94253815/160728778-d874fd6c-18f5-4b37-9ba7-3893e1eb4f4a.png)
 
 
 ## Deliverable # 3
